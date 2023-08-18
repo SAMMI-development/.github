@@ -10,4 +10,4 @@
 ## Motto:
 ### We take the scheduling out of your schedule
 
-![Alt text](https://cdn.midjourney.com/a80f433a-baea-462b-9f36-2af0bfe414ae/0_0.webp)
+![Alt text](https://imgur.com/a/gD8UAGh)
