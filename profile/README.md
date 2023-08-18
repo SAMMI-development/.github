@@ -10,4 +10,4 @@
 ## Motto:
 ### We take the scheduling out of your schedule
 
-![Alt text](https://imgur.com/a/gD8UAGh)
+![Screenshot](https://i.imgur.com/vCSECmU.png)
